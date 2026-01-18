@@ -1,0 +1,1 @@
+# vinylsnap-privacy
